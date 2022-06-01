@@ -2,7 +2,8 @@
 
 - 🤖
 - 🔭Hoje  atuamente  trabalho  Analista  de suporte  infra estrutura  em redes.,
--      🌱  Estudando  L
+-      🌱  Estudando  liguagem de Programaçâo , html , css . Phyton .   
+
 
 👨‍🎓
 🤖Pronouns : Ele / dele
